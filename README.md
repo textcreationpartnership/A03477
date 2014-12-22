@@ -33,7 +33,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-An Anſwere to the Hollanders Declaration, concerning the Occurrents of the Eaſt-India.The firſt Par
 #####Body#####
 
 1. AN ANSWERE TO THE HOLLANders Declaration concerning the Occurrents of the Eaſt-India.
